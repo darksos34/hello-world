@@ -3,7 +3,7 @@
 Hello everyone!!
 Who am i ? 
 
-I am Jordy age of 30 living in Boxtel(good vibes).
+I am Jordy age of 30 living in The netherlands(good vibes).
 
 My favourite food is Spicy Chicken (Indonesian Recipe)
 
